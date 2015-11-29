@@ -26,4 +26,4 @@ He organised the Montgomerey Bus Boycott when Rosa Parks refoused to give up her
 
 He had a strong belief in right and wrong and inspired people to follow him.
 
-####By Eli.M
+####By hiccup01
